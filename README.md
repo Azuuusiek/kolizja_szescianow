@@ -1,0 +1,1 @@
+# kolizja_szescianow
